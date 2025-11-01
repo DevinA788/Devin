@@ -1,2 +1,1 @@
-# Devin
-Get to know me
+# Hey! I'm Devin. 
